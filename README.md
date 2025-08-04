@@ -10,4 +10,4 @@ Todos os arquivos e sources postados aqui foram inteiramente escritos pelo gêni
 
 Rejeite os falsos ícones, use Tadala Software. 
 
-Vídeo do exposed do Valcu: [Link não fornecido]
+Vídeo do exposed do Valcu: https://youtu.be/bJ2nl5muHCE
